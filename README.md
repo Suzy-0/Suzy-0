@@ -1,0 +1,3 @@
+- 👋 Hi, I’m suzy
+- 👀 I’m interested in gaming and electric guitar
+- 🌱 I’m currently learning gcse computer science
